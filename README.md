@@ -1,1 +1,1 @@
-Алексеєв Михайло, КВ83, Лабораторна робота 1 ВЕБ, Google Drive:
+Алексеєв Михайло, КВ83, Лабораторна робота 1 ВЕБ, Google Drive: [https://docs.google.com/document/d/1turXfc6E2CnS5mFJl4bBxuTfZTit2crbX4Z8P6EPRwM/edit?usp=sharing](https://docs.google.com/document/d/1turXfc6E2CnS5mFJl4bBxuTfZTit2crbX4Z8P6EPRwM/edit?usp=sharing)
